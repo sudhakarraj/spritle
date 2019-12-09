@@ -1,4 +1,0 @@
-# spritle
-gdffdfd
-oooo
-ewteryetyht
